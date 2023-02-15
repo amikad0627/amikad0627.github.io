@@ -1,0 +1,1 @@
+# amikad0627.github.io
